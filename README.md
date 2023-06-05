@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Evgeniy Kuzmichev
-- 👀 I’m interested in ...
+- 👀 I am interested in gaining new knowledge and interesting projects where I can hone my skills and help others.
 - 🌱 I am currently studying at skillfactory to be a data analyst.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : https://t.me/Kuzmichev_E , linkedin.com/in/evgeniy-kuzmichev-5a149825b , e2132323@gmail.com
